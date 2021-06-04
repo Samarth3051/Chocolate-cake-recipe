@@ -1,0 +1,1 @@
+Refined flour, cocoa powder, baking powder, sodium hydrogen carbonate(baking soda), sugar, vanilla essence and a bar of dark chocolate.
